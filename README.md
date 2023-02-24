@@ -1,9 +1,4 @@
-### Hi there 👋
-
-<!--
-**gunamertha2002/gunamertha2002** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-
+#HALO SEMUA
 
 
 
