@@ -2,7 +2,7 @@
 
 
 
-Perkenalkan nama saya **Gilang Ramadhan**.\
+Perkenalkan nama saya **I Gd Ny Werdyana Guna Mertha**.\
 
 - 🌱 Saya seorang **Peserta** di [Dicoding](https://www.dicoding.com/).\
 - 🌱 saya kuliah di Universitas Pendidikan Ganesha
